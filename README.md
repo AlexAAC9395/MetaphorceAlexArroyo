@@ -1,3 +1,2 @@
 # MetaphorceAlexArroyo
-
-[![MAPEO.gif](https://i.postimg.cc/BQ127Hkg/MAPEO.gif)](https://postimg.cc/dLw7Lkqk)
+[![wp3082291.png](https://i.postimg.cc/bNTSBgL1/wp3082291.png)](https://postimg.cc/56XtHwht)
